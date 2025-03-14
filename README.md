@@ -70,6 +70,12 @@ https://www.sciencedirect.com/science/article/pii/S0969698919309634
 https://www.researchgate.net/publication/373127795_Corporate_Social_Responsibility_in_Sustainable_Tourism_Development_towards_Local_Culture
 
 
+για το δευτερο περιβαλλον https://www.researchgate.net/publication/283378794_Ecotourism_CSR_and_the_fourth_dimension_of_sustainability
+
+πολιτισμος https://www.researchgate.net/publication/382070395_Preserving_cultural_heritage_Integrating_traditional_values_and_local_arts_for_sustainable_tourism
+
+
+
 
 
 
